@@ -1,0 +1,1 @@
+Popular in the southern U.S., red velvet cake is a vanilla cake with a few tablespoons of cocoa powder and red food coloring mixed in. Vinegar and buttermilk bring some acid to the batter, adding a bit of tanginess that balances out the sweet cream cheese-butter frosting that is standard.
